@@ -1,0 +1,2 @@
+# ExoCrashOS
+ALL FUNCTION BUGS [ ZAKRENZ ]
